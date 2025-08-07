@@ -1,1 +1,0 @@
-# scaling-palm-tree
